@@ -1,0 +1,1 @@
+https://www.ted.com/talks/blaise_aguera_y_arcas_how_computers_are_learning_to_be_creative
